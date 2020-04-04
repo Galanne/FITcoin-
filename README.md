@@ -1,0 +1,2 @@
+# FITcoin-
+Une monnaie pour unifier le monde du Fitness et du Sport en général. Le moyen de permettre aux acteurs du monde sportif ainsi qu’à tous les membres des clubs autour du globe de faire partie de l’aventure. Le FITcoin permettra de payer vos adhésions, payer les fournisseurs, prestataires, employés la liste est exponentielle, les applications sont infinies. Les possibilités illimitées. Cette crypto monnaie permettra aussi de créer un fond d’investissement afin d’aider les clubs de Fitness en difficultés à travers le monde. 
